@@ -1,3 +1,3 @@
-🎓Academic Github account\n
-🏫University of Notre Dame\n
-🔗github.com/macdee661
+🎓Academic Github account  
+🏫University of Notre Dame  
+🔗[github.com/macdee661](https://github.com/macdee661)
